@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @itsmeanamol
-- 👀 I’m interested in coding
+- 👀 I’m interested on you 😍
 - 🌱 I’m currently learning python as a Higher Lever Student
 - 💞️ I’m looking to collaborate on something special 😶
 - 📫 How to reach me : 📧 7omqnq@gmail.com
-- 😄 Pronouns: uh-NAH-muhl
-- ⚡ Fun fact: Why did the programmer go broke? Because he used up all his cache! 💰💻
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: Turning coffee into code since 2007 💰💻
